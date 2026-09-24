@@ -14,3 +14,5 @@ Gameoverse fans
 
 Nothing to say.
 
+darkshippers
+mmmhmhm just really weird people in general yknow what I mean
